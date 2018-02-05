@@ -16,4 +16,6 @@ https://www.nesta.org.uk/sites/default/files/research_on_digital_identity_ecosys
  
  Personal data is the currency of our modern information age
  
+ Geo Daten – die DNA der #Kommunen“  #geodaten Habbel
+ 
  
